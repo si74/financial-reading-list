@@ -59,3 +59,11 @@ Despite being an economics/engineering major, I was pretty bad with money by the
 [The Only Guide You'll Ever Need for the Right Financial Plan: Managing Your Wealth, Risk, and Investments](https://www.amazon.com/Only-Guide-Youll-Right-Financial/dp/1576603660), by Larry E. Swedroe, Kevin Grogan, and Tiya Lim
 
 [The best investment guide you'll ever get](http://www.modernluxury.com/san-francisco/story/the-best-investment-advice-youll-never-get), by Mark Dowie
+
+[Investing for Dummies](https://www.amazon.com/Investing-Dummies-Eric-Tyson/dp/1118884922), by Eric Tyson 
+
+[Fundamental Analysis For Dummies](https://www.amazon.com/gp/product/B01E1T0OX8/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), by Matthew Krantz
+
+[Technical Analysis for Dummies](https://www.amazon.com/Technical-Analysis-Dummies-Barbara-Rockefeller-ebook/dp/B07XLG8YPD/), by Barbara Rockefeller
+
+[Swing Trading for Dummies](https://www.amazon.com/Swing-Trading-Dummies-Omar-Bassal-ebook/dp/B07QBFPVZY/), Omar Bessel 
