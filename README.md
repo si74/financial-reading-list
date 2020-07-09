@@ -23,10 +23,13 @@ Despite being an economics/engineering major, I was pretty bad with money by the
 
 [r/personalfinance](https://www.reddit.com/r/personalfinance/)
 
-
-## Videos & Articles
+## Videos
 
 [Investing with Rose](https://www.youtube.com/channel/UCIbslwukNCyVp-XMz_2-gmw)
+
+[The Graham Stephan Show](https://www.youtube.com/channel/UCa-ckhlKL98F8YXKQ-BALiw)
+
+[CNBC Make It](https://www.youtube.com/channel/UCH5_L3ytGbBziX0CLuYdQ1Q)
 
 ## Investing Books
 
