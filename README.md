@@ -67,6 +67,8 @@ Despite being an economics/engineering major, I was pretty bad with money by the
 
 [The Only Guide You'll Ever Need for the Right Financial Plan: Managing Your Wealth, Risk, and Investments](https://www.amazon.com/Only-Guide-Youll-Right-Financial/dp/1576603660), by Larry E. Swedroe, Kevin Grogan, and Tiya Lim
 
+[Bogleheads Guide to Investing](https://www.amazon.com/Bogleheads-Guide-Investing-Taylor-Larimore/dp/0470067365#customerReviews)
+
 ## Trading Books
 
 [Fundamental Analysis For Dummies](https://www.amazon.com/gp/product/B01E1T0OX8/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1), by Matthew Krantz
@@ -74,6 +76,15 @@ Despite being an economics/engineering major, I was pretty bad with money by the
 [Technical Analysis for Dummies](https://www.amazon.com/Technical-Analysis-Dummies-Barbara-Rockefeller-ebook/dp/B07XLG8YPD/), by Barbara Rockefeller
 
 [Swing Trading for Dummies](https://www.amazon.com/Swing-Trading-Dummies-Omar-Bassal-ebook/dp/B07QBFPVZY/), Omar Bessel
+
+[Trading Triads](https://www.amazon.com/Trading-Triads-Unlocking-Secrets-Structure/dp/0470748435)
+
+[Market Maker's Edge](https://www.amazon.com/Market-Makers-Edge-Fundamental-Environment/dp/0071412743/ref=sr_1_1?dchild=1&keywords=market+makers+edge&qid=1612196472&s=books&sr=1-1)
+
+## FIRE
+
+[FIREyfemmes Subreddit](https://www.reddit.com/r/FIREyFemmes/comments/kxw8gr/monthly_newbie_and_lurkers_welcome_tell_us_about/)
+[Fire Calculator](https://www.playingwithfire.co/retirementcalculator)
 
 ## Economics
 
