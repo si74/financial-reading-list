@@ -31,6 +31,10 @@ Despite being an economics/engineering major, I was pretty bad with money by the
 
 [Investing with Rose](https://www.roseshafa.com/)
 
+[Bogleheads Website](https://www.bogleheads.org/wiki/Getting_started)
+
+[Investopedia](https://www.investopedia.com/) - General Wikpedia of sorts for investment information
+
 ## Books on Personal Finance
 
 [Living the Savvy Life](https://www.amazon.com/Living-Savvy-Life-Womans-Spending/dp/160037834X/), Melissa Tosetti
