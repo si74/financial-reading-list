@@ -41,6 +41,8 @@ Despite being an economics/engineering major, I was pretty bad with money by the
 
 [The Millionaire Next Door](https://www.amazon.com/Millionaire-Next-Door-Surprising-Americas/dp/1589795474), by Thomas J. Stanley
 
+[Rich Dad Poor Dad](https://www.amazon.com/Rich-Dad-Poor-Teach-Middle/dp/1612680194)
+
 ## Youtube Channels
 
 [Investing with Rose](https://www.youtube.com/channel/UCIbslwukNCyVp-XMz_2-gmw)
